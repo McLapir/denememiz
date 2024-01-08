@@ -1,0 +1,2 @@
+# denememiz
+yeni baslangic
